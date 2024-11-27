@@ -1,4 +1,4 @@
 
 alo bc
 
-![[img/Pasted%20image%2020241127104635.png]]
+![[img/Pasted image 20241127104635.png]]
